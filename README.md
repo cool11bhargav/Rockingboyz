@@ -14,19 +14,25 @@ ROCKING BOYZ  !!! ✌✌ WEBSITE
 <p> Hope you all would like to join. Will meet soon <p>
 <p> after Covid – 19. Let’s try to have fun <p>
 <p> and timepass Covid - 19. <p>
- 
+
+<p> The Rocking Boyz are : <p>
+<p> 1. Abishek Kanna P    - 7D <p>
+<p> 2. Mohammed Ahil N    - 7B <p>
+<p> 3. Cidh Shrinay T     - 7E <p>
+<p> 4. Shreyas            - 7E <p>
+<p> 5. Ronak Jain S       - 7A <p>
+<p> 6. Bhargavanath J H P - 7B <p>
+<p> 7. Mirthyun jaya J    - 7B <p>
+<p> 8. Harsh Vora         - 7B <p>
+
+<p> Wanna Join ? <p>
+<p> https://chat.whatsapp.com/KCTtd3ke55O6wgOefU6yyB <p>
+<p> Join through the above link. <p>
+
 <p> Thank you <p>
  
-<p> Regards <p>
- 
-<p> BHARGAVANATH.J.H.P <p>
- 
-<p> +91 96000 40595 <p>
- 
-<p> bhargavjhp@gmail.com <p>
  
  
  
-
 
 
